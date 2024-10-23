@@ -1,4 +1,4 @@
-Quanto mais água mole bate na pedra dura, mais dura a pedra fica mole
+A verdadeira vitória e conquistas, são os amigos que fizemos ao longo do caminho.
 
 ![](https://media.tenor.com/QsO5N5jVel4AAAAd/koenigsegg-need-for-speed-movie.gif)
 
